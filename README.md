@@ -1,3 +1,3 @@
 # pelatihanlinux
 
-## Nama: Ilham M. Misbahuddin
+## Nama: khawari muhammad
